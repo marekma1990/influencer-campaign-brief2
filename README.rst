@@ -2,7 +2,7 @@
 influencer-campaign-brief 2
 *****
 
-Due to the rise in popularity of influencer marketing in recent years, it is critical for companies to develop carefully thought-out influencer campaign briefs. This article's goal is to give a general overview of the essential elements of a successful influencer campaign brief and the frequent errors to avoid. The significance of a well-written brief is discussed after an explanation of influencer marketing and its widespread use. We go into great detail about the role of the brief, how to match goals with the overall marketing plan, and how to find the appropriate influencers. The piece ends with a summary of the most important lessons learned and advice for companies looking to incorporate influencer marketing into their overall marketing plans.  
+Due to the rise in popularity of influencer marketing in recent years, it is critical for companies to develop carefully thought-out influencer campaign briefs. This article's goal is to give a general overview of the essential elements of a successful influencer campaign brief and the frequent errors to avoid. The significance of a well-written brief is discussed after an explanation of influencer marketing and its widespread use. We go into great detail about the role of the brief, how to match goals with the overall marketing plan, and how to find the appropriate influencers. The piece ends with a summary of the most important lessons learned and advice for companies looking to incorporate influencer marketing into their overall marketing plans. More about `marketing you can find on <https://scoutups.com/>`_. 
 
 Understanding the Purpose of the Influencer Campaign Brief
 ########
